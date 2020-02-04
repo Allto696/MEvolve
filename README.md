@@ -6,7 +6,7 @@ This is mod for Mindustry adds some small features. Now in this mod 3 turrets, 3
 
 Trello (Now and future plans): https://trello.com/b/p2ntu2UB
 
-My Discord (For ideas/report bugs/questions): LonelyYmomfe#7656
+My Discord (For ideas/report bugs/questions): LonelyYmomfe#7656, shrek_is_love_shrek_is_life#5722
 
 My Steam (For ideas/report bugs/questions): http://steamcommunity.com/id/red_pidor
 
@@ -18,6 +18,6 @@ Nikname in-game: [orange]y[yellow]momfe , [red]pis'[yellow]ko[crimson]navt
 
 Доска Trello (Планы на сейчас и будущее): https://trello.com/b/p2ntu2UB
 
-Мой Discord (Для идей/Репортов багов/Вопросы): LonelyYmomfe#7656
+Мой Discord (Для идей/Репортов багов/Вопросы): LonelyYmomfe#7656, shrek_is_love_shrek_is_life#5722
 
 Ник в игре: [orange]y[yellow]momfe , [red]pis'[yellow]ko[crimson]navt
