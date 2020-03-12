@@ -20,4 +20,4 @@ Nikname in-game: [orange]y[yellow]momfe , [red]pis'[yellow]ko[crimson]navt
 
 Мой Discord (Для идей/Репортов багов/Вопросы): LonelyYmomfe#7656, shrek_is_love_shrek_is_life#5722
 
-Ник в игре: [orange]y[yellow]momfe , [red]pis'[yellow]ko[crimson]navt
+Ник в игре: [orange]y[yellow]momfe , Bruh
