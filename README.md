@@ -10,7 +10,7 @@ My Discord (For ideas/report bugs/questions): LonelyYmomfe#7656, shrek_is_love_s
 
 My Steam (For ideas/report bugs/questions): http://steamcommunity.com/id/red_pidor
 
-Nikname in-game: [orange]y[yellow]momfe , [red]pis'[yellow]ko[crimson]navt
+Nikname in-game: [orange]y[yellow]momfe, Bruh
 
 =-=-=-=-=-=-=-=-=-=-=-= RU =-=-=-=-=-=-=-=-=-=-=-=
 
@@ -20,4 +20,4 @@ Nikname in-game: [orange]y[yellow]momfe , [red]pis'[yellow]ko[crimson]navt
 
 Мой Discord (Для идей/Репортов багов/Вопросы): LonelyYmomfe#7656, shrek_is_love_shrek_is_life#5722
 
-Ник в игре: [orange]y[yellow]momfe , Bruh
+Ник в игре: [orange]y[yellow]momfe, Bruh
